@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @MadGodNerevar
+- 👀 I’m interested in a fair amount, I work hard and push myself to new limits.
+- 🌱 I’m currently learning how to hack and enjoying every moment.
+- 📫 How to reach me literally anywhere you can find me, if you have a question or suggestion then please ask.
